@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gressjess2406, I'm 18 years old
+- 👀 I’m interested in will be a good software programer
+- 🌱 I’m currently learning database
+- 📫 How to reach me ximenajeesiegressmartinez@gmail.com
+- 😄 Pronouns: she, her, hers
+- ⚡ Fun fact: I love sushi
